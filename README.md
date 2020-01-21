@@ -1,2 +1,3 @@
-# privacy_policy
+# Privacy Policy
+
 Fliver privacy policy
