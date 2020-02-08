@@ -1,3 +1,3 @@
 # Privacy Policy
 
-Fliver privacy policy
+Privacy Policy for Fliver Rider & Fliver Driver
